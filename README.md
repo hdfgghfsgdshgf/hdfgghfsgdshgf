@@ -8,6 +8,10 @@ Below, here are some things about me before you interact;
 - I will NAAAWWTT talk to you if you give me the ick, or you will just be blocked.
 - I'm usually off tab! But that doesn't mean I'm ignoring you aha
 
+Green = Here! Most likely with friends
+Yellow = Probably lurking, W2I
+Red = Not paying attenton, W2I
+
 ## OTHER 🩷
 I dabble in some fun things, such as;
 
