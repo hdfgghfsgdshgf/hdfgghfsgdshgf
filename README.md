@@ -1,10 +1,10 @@
 *hi hi ! !*
 
-> im **HD**, but I also go by some other names from friends. I use she/her pronouns usually, but they also correspond with the current gender I'm presenting as in game ! — ✨
+ im **HD**, but I also go by some other names from friends. I use she/her pronouns usually, but they also correspond with the current gender I'm presenting as in game ! — ✨
 Below, here are some things about me before you interact;
 
 ## BYI 💌
-> - I am a **MINOR**. Adult interactions are okay, but don't flirt with me.
+- I am a **MINOR**. Adult interactions are okay, but don't flirt with me.
 - I will NAAAWWTT talk to you if you give me the ick, or you will just be blocked.
 - I'm usually off tab! But that doesn't mean I'm ignoring you aha
 
