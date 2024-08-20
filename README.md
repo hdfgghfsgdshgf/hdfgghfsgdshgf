@@ -12,11 +12,13 @@ Below, here are some things about me before you interact;
 
 I'm Canadian (EST) , please please *PLEEEASE* don't mistake me for an American or I'll shed a tear.
   I dabble in some fun things, such as;
+
       1. RP
       2. Art (Painting, digital/traditional)
       3. Jobbing !! Shocker right?
 
 I'm a multishipper, I usually can get behind most Sonic ships, but here are the ones I'm not a fan of
+
     Tails/Cream/Charmy x **anyone**
     Rouge/Vanilla/Vector x **anyone**
     Shadow x Amy, Maria, Commander
