@@ -17,8 +17,8 @@ I dabble in some fun things, such as;
 
 I'm a multishipper, I usually can get behind most Sonic ships, but here are the ones I'm not a fan of
 
-    Tails/Cream/Charmy x **anyone**
-    Rouge/Vanilla/Vector x **anyone**
+    Tails/Cream/Charmy x anyone
+    Rouge/Vanilla/Vector x anyone
     Shadow x Amy, Maria, Commander
     Silver x Mephiles, Blaze
     Sonic x Infinite, Eggman, **Any** villain
