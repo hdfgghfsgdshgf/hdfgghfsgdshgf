@@ -9,8 +9,6 @@ Below, here are some things about me before you interact;
 - I'm usually off tab! But that doesn't mean I'm ignoring you aha
 
 ## OTHER 🩷
-
-I'm Canadian (EST) , please please *PLEEEASE* don't mistake me for an American or I'll shed a tear.
 I dabble in some fun things, such as;
 
       1. RP
@@ -24,3 +22,5 @@ I'm a multishipper, I usually can get behind most Sonic ships, but here are the 
     Shadow x Amy, Maria, Commander
     Silver x Mephiles, Blaze
     Sonic x Infinite, Eggman, **Any** villain
+
+I'm Canadian (EST) , please please *PLEEEASE* don't mistake me for an American or I'll shed a tear.
