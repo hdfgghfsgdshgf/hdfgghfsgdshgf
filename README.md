@@ -11,7 +11,7 @@ Below, here are some things about me before you interact;
 ## OTHER 🩷
 
 I'm Canadian (EST) , please please *PLEEEASE* don't mistake me for an American or I'll shed a tear.
-  I dabble in some fun things, such as;
+I dabble in some fun things, such as;
 
       1. RP
       2. Art (Painting, digital/traditional)
