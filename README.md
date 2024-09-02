@@ -9,7 +9,9 @@ Below, here are some things about me before you interact;
 - I'm usually off tab! But that doesn't mean I'm ignoring you aha
 
 Green = Here! Most likely with friends
+
 Yellow = Probably lurking, W2I
+
 Red = Not paying attenton, W2I
 
 ## OTHER 🩷
