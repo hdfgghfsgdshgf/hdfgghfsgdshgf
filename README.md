@@ -28,5 +28,6 @@ I'm a multishipper, I usually can get behind most Sonic ships, but here are the 
     Shadow x Amy, Maria, Commander
     Silver x Mephiles, Blaze
     Sonic x Infinite, Eggman, Any villain
+if you want the way into my heart talk to me about knuxadow and sonilver PURRRRR
 
 I'm Canadian (EST) , please please *PLEEEASE* don't mistake me for an American or I'll shed a tear.
